@@ -1,1 +1,1 @@
-A repo for holding various codes dreamwidth codes.
+A repo for holding various codes for dw rp.
